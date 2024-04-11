@@ -1,0 +1,2 @@
+# GREED
+Type shit.
